@@ -1,0 +1,3 @@
+Biraz PYTHON !
+
+AbdulAziz ALTUNTAŞ
